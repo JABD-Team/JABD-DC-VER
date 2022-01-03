@@ -1,0 +1,2 @@
+# JABD-DISCORD-Ver
+# lười
